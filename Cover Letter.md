@@ -26,15 +26,3 @@ I can be reached anytime via email at manm17cs@cmrit.ac.in or my mobile at 98459
 Please have a look at my resume for detailed information about me.
 Sincerely, 
 Manmohan Kushwaha 
-
-
-
-##############################################################################################################################################################################
-
-
-.
-
-
-
-
- 
